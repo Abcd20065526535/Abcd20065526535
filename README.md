@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Abcd20065526535
+- 👀 I’m interested in learning new skills.
+- 🌱 I’m currently learning coputer science and mechanic drawing.
+- 💞️ I’m looking to collaborate on coputer science.
+- 📫 How to reach me--email(zixu.guo2006@outlook.com)
